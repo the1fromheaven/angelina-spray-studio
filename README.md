@@ -1,1 +1,0 @@
-# angelina-spray-studio
